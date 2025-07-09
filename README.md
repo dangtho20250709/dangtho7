@@ -10,4 +10,4 @@
 
 这些资源站专注收录国产与欧美日韩高质量视频，内容涵盖人妻、卡片剧情、精品短片等多种题材，满足不同用户喜好。每部影片页面都提供演员信息、播放时长与清晰度说明，方便快速筛选。平台配备高清播放技术，自动根据网络状况调整画质，带来流畅便捷的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangtho20250709/dangtho7 ）</span>
